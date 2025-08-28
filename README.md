@@ -1,2 +1,2 @@
-# fahad-khaN
+# fahad-khan
 I AM STUDENT TO WEB AND APPS DEVELPOR
